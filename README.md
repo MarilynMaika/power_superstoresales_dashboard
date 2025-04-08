@@ -50,6 +50,6 @@ This interactive dashboard was designed for executive decision-makers to monitor
 
 ## 🔗 Connect With Me
 
-Let’s connect on [LinkedIn](https://www.linkedin.com) to share ideas and learn together!
+Let’s connect on [LinkedIn](https://www.linkedin.com/in/sevidzem-marilyn-218979255/) to share ideas and learn together!
 
 
